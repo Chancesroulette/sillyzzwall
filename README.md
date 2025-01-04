@@ -2,7 +2,7 @@
 
 xtra ,, 
 
-⟡ names i preferred to be called is Gooby, Wall, Mason !! 
+⟡ names i preferred to be called is Gooby, Wall, Mason !! other names are Finny, Shrimpy, and Ren. idm being called those too!!
 
 ⟡ im a Goob fictkin so i'd be more than happy to be called Goob/Gooby ^_^ 
 
