@@ -6,6 +6,8 @@ xtra ,,
 
 ⟡ im a Goob fictkin so i'd be more than happy to be called Goob/Gooby ^_^ 
 
+⟡ i go by he/him, or any!!! 
+
 ⟡ jst read my rentry 
 
 ⟡ ya ok ummm toodalooooo
