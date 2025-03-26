@@ -2,9 +2,9 @@
 
 xtra ,, 
 
-⟡ names i preferred to be called is Gooby, Wall, Mason !! other names are Finny, Shrimpy, and Ren. idm being called those too!!
+⟡ names i preferred to be called is Chance/Chancey, Wall, Mason !! other names r in renty ^_^
 
-⟡ im a Goob fictkin so i'd be more than happy to be called Goob/Gooby ^_^ 
+⟡ im a Chance fictkin so i'd be more than happy to be called Chance/Chancey !!
 
 ⟡ i go by he/him, or any!!! 
 
